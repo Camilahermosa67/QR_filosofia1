@@ -1,0 +1,1 @@
+# QR_filosofia1
